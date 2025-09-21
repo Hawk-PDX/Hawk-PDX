@@ -6,8 +6,8 @@
 - I’m looking to collaborate on ... pretty much anything, I'm always looking for an opportunity to assist as well as learn! 👍🏽
 - 📫 How to reach me ... LinkedIn, phone or email ^^
 - Pronouns: ... 🥷🏽
-- ⚡ Fun fact: One of life's conundrums... the cooralation between geometry and pizza. Let's
-- talk shapes!!! 😂
+- ⚡ Fun fact: One of life's conundrums... the cooralation between geometry and pizza.
+- Let's talk shapes!!! 😂
 
 <!---
 Hawk-PDX/Hawk-PDX is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
